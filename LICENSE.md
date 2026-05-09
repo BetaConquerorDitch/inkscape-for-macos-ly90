@@ -1,4 +1,4 @@
-
+Inkscape for macOS rare Automation - perspective warp and typography tools is the best Inkscape for macOS automation, featuring perspective warp and typography tools. Safe,
 
 
 
